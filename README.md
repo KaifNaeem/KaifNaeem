@@ -2,7 +2,8 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me through my email
+- 📫 How to reach me = Through my email
+- kaifsiddiqui626@gmail.com
   
 
 
